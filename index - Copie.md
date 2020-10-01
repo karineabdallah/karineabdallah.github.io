@@ -1,3 +1,0 @@
-# Karine ABDALLAH
-Rennes
-  testcfcfcf
